@@ -11,7 +11,7 @@ In  der Turnhalle befinden sich keine Waschmaschinen und Trockener mit  denen di
 
 Eine regelmäßige medizinische Versorgung findet durch Ärzte statt. Die Versorgung mit geeigneten Medikamenten ist jedoch prekär.
 
-Laut dem Landesamt für Gesundheut und Soziales (LaGeSo) dient die Turnhalle als Notunterkunft für Geflüchtete unmittelbar nach ihrer Ankunft in Berlin, in der sie höchstens einige Tage verbringen sollen, bevor sie über Einleitung eines Asylverfahrens andernorts untergebracht werden. Faktisch bleiben viele der Bewohner_innen wesentlich länger dort.
+Laut dem Landesamt für Gesundheit und Soziales (LaGeSo) dient die Turnhalle als Notunterkunft für Geflüchtete unmittelbar nach ihrer Ankunft in Berlin, in der sie höchstens einige Tage verbringen sollen, bevor sie über Einleitung eines Asylverfahrens andernorts untergebracht werden. Faktisch bleiben viele der Bewohner_innen wesentlich länger dort.
 
 Ursprünglich sollte die Turnhalle bis zum 31. Januar 2015 genutzt werden. Inzwischen ist klar, dass die Beschlagnahmung durch das Landesamt mindestens bis zum 31. März 2015 andauern wird.
 
