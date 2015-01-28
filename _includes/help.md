@@ -1,4 +1,4 @@
-Wie kann ich helfen
+Wie kann ich helfen?
 
 #### Aktivitäten
 
@@ -21,7 +21,7 @@ Kontaktiert uns, wenn ihr euch einbringen wollt!
 #### Sachspenden
 
 Die Geflüchteten bzw. die AWO wird bereits intensiv von Anwohner_innen mit
-Sachspenden versorgt. Den aktuellen Bedarf versuchen auf
+Sachspenden versorgt. Den aktuellen Bedarf versuchen wir auf
 [http://pad.spline.de/sachspenden](http://pad.spline.de/sachspenden)
 zusammenzutragen.
 
