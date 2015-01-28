@@ -34,7 +34,7 @@ In Zukunft werden wir hier dann auch dokumentieren, wofür wir das Geld verwende
 #### Anlaufstellen
 
 Weitere Institutionen, die sich um die Belange der in der Turnhalle
-untergebrachten Geflüchte kümmern:
+untergebrachten Geflüchten kümmern:
  
 * [Willkommensbündnis-Steglitz-Zehlendorf](http://www.willkommensbuendnis-steglitz-zehlendorf.de)
 * [Evangelische Kirchengemeinde Berlin Dahlem](http://www.kg-dahlem.de)
