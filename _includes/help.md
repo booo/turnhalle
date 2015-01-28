@@ -1,3 +1,5 @@
+Wie kann ich helfen
+
 #### Aktivitäten
 
 Wir möchten möglichst viele verschiedene Aktivitäten für die Menschen in der
@@ -22,6 +24,12 @@ Die Geflüchteten bzw. die AWO wird bereits intensiv von Anwohner_innen mit
 Sachspenden versorgt. Den aktuellen Bedarf versuchen auf
 [http://pad.spline.de/sachspenden](http://pad.spline.de/sachspenden)
 zusammenzutragen.
+
+#### Geldspenden
+ 
+Wir sammeln auch Geldspenden, die wir verwenden für das Einkaufen und Bereitstellen von Fahrkarten, Spielzeug, Hygiene-Artikeln, Kommunikationsmöglichkeiten (Tel./Internet), für Unternehmungen und soziale Events sowie für sonstigen jeweils aktuellen Bedarf. Spenden könnt ihr über unsere Spendendosen in verschiedenen studentischen Cafes (Liste folgt). Bald wollen wir auch ein Konto für Spenden bereitstellen.
+
+In Zukunft werden wir hier dann auch dokumentieren, wofür wir das Geld verwendet haben.
 
 #### Anlaufstellen
 
