@@ -7,7 +7,7 @@ unterstützen wollen.
 Für die Versorgung der Geflüchteten, die vorwiegend aus Syrien, Afghanistan und dem Balkan stammen, ist die Arbeiterwohlfahrt (AWO) verantwortlich.
 Die Geflüchteten – Männer, Frauen und Kinder – teilen sich ohne jede Möglichkeit auf Privatsphäre die Turnhalle und nutzen sie als Schlaf-, Ess- und Spielraum.
 
-In  der Turnhalle befinden sich keine Waschmaschinen und Trockener mit  denen die Geflüchteten ihre Wäsche waschen können. Waschmarken werden  den Geflüchteten von der Unterkunftsleitung zur Verfügung gestellt.
+In der Turnhalle befinden sich keine Waschmaschinen und Trockner, mit denen die Geflüchteten ihre Wäsche waschen könnten. Waschmarken werden den Geflüchteten von der Unterkunftsleitung zur Verfügung gestellt.
 
 Eine regelmäßige medizinische Versorgung findet durch Ärzte statt. Die Versorgung mit geeigneten Medikamenten ist jedoch prekär.
 
