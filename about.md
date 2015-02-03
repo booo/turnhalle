@@ -13,4 +13,4 @@ Unterkunftsleitung (AWO) durch regelmäßige Besuche herzustellen bzw. aufrecht 
 erhalten.
 
 Wir organisieren uns über regelmäßige Plenas im AStA der Freien Universität,
-sowie über eine Mailingliste (INSERT LINK HERE).
+sowie über eine Mailingliste.
