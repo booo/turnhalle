@@ -51,6 +51,6 @@ In Zukunft werden wir hier dann dokumentieren, wofür wir das Geld verwendet hab
 Weitere Institutionen, die sich um die Belange der in der Turnhalle
 untergebrachten Geflüchteten kümmern:
  
-* [Willkommensbündnis-Steglitz-Zehlendorf](http://www.willkommensbuendnis-steglitz-zehlendorf.de)
-* [Evangelische Kirchengemeinde Berlin Dahlem](http://www.kg-dahlem.de)
+* [Willkommensbündnis Steglitz-Zehlendorf](http://www.willkommensbuendnis-steglitz-zehlendorf.de)
+* [Evangelische Kirchengemeinde Berlin-Dahlem](http://www.kg-dahlem.de)
 
