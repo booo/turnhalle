@@ -5,7 +5,7 @@ Umfeld, die eine Willkommenskultur schaffen und die Geflüchteten
 unterstützen wollen.
 
 Für die Versorgung der Geflüchteten, die vorwiegend aus Syrien, Afghanistan und dem Balkan stammen, ist die Arbeiterwohlfahrt (AWO) verantwortlich.
-Die Geflüchteten – Männer, Frauen und Kinder – teilen sich ohne jede Möglichkeit auf Privatsphäre die Turnhalle und nutzen sie als Schlaf-, Ess- und Spielraum.
+Die Geflüchteten - Männer, Frauen und Kinder - teilen sich ohne jede Möglichkeit auf Privatsphäre die Turnhalle und nutzen sie als Schlaf-, Ess- und Spielraum.
 
 In der Turnhalle befinden sich keine Waschmaschinen und Trockner, mit denen die Geflüchteten ihre Wäsche waschen könnten. Waschmarken werden den Geflüchteten von der Unterkunftsleitung zur Verfügung gestellt.
 
@@ -16,3 +16,4 @@ Laut dem Landesamt für Gesundheit und Soziales (LaGeSo) dient die Turnhalle als
 Ursprünglich sollte die Turnhalle bis zum 31. Januar 2015 genutzt werden. Inzwischen ist klar, dass die Beschlagnahmung durch das Landesamt mindestens bis zum 31. März 2015 andauern wird.
 
 Inzwischen wurde in der Turnhalle eine Internetversorgung durch Freifunk Berlin eingerichtet, die allen dort untergebrachten Geflüchteten zur Verfügung steht.
+
