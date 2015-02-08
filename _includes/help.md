@@ -17,7 +17,6 @@ Besonders helfen kannst du, wenn du eine der Sprachen der Menschen in der
 Turnhalle sprichst, indem du uns beim Übersetzen hilfst oder selbst Zeit mit 
 den Menschen verbringst. Auch Hilfe bei Behördengängen und Arztbesuchen ist
 sehr wichtig. Benötigte Sprachen sind
-
 - Albanisch
 - Pashtu (hier haben wir bisher noch niemanden!)
 - Farsi 
@@ -26,7 +25,6 @@ sehr wichtig. Benötigte Sprachen sind
 - Kurdisch
 - Russisch
 - Türkisch
-
 Wenn du dir eine dieser Sprachen sprichst und dir vorstellen kannst,
 mitzumachen, melde dich bei uns. Wir nehmen dich dann in unsere Liste auf und
 kontaktieren dich, wenn etwas ansteht. Die Turnhalle ist übrigens relativ
