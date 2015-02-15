@@ -19,10 +19,10 @@ den Menschen verbringst. Auch Hilfe bei Behördengängen und Arztbesuchen ist
 sehr wichtig. Benötigte Sprachen sind zum Beispiel
 
 - Albanisch
-- Pashtu (hier haben wir bisher noch niemanden!)
+- Pashtu (hier haben wir bisher noch niemanden)
 - Farsi 
 - Arabisch
-- Bosnisch/Kroatisch/Serbisch
+- Bosnisch/Kroatisch/Serbisch (das wäre auch super!)
 - Kurdisch
 - Russisch
 - Türkisch
