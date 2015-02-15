@@ -55,7 +55,7 @@ Bereitstellen von Fahrkarten, Spielzeug, Hygiene-Artikeln,
 Kommunikationsmöglichkeiten (Tel./Internet), für Unternehmungen und soziale
 Events sowie für sonstigen jeweils aktuellen Bedarf. Spenden könnt ihr über
 unsere Spendendosen in verschiedenen studentischen Cafés: Caledonien, Geromat,
-Kauderwelsch, Pi-Café, Sportler_innen-Café
+Kauderwelsch, Pi-Café und Sportler_innen-Café.
 
 Bald wollen wir auch ein Konto für Spenden bereitstellen.
 
