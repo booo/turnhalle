@@ -1,8 +1,7 @@
 200 Geflüchtete, darunter rund ca. 70 Kinder, sind seit dem 19. Dezember
 2014 in der Unisport-Turnhalle der Freien Universität in Dahlem
 untergebracht. Wir sind ein Bündnis von Menschen aus dem universitären
-Umfeld, die eine Willkommenskultur schaffen und die Geflüchteten
-unterstützen wollen.
+Umfeld, die die Geflüchteten unterstützen wollen.
 
 Für die Versorgung der Geflüchteten, die vorwiegend aus Syrien, Afghanistan und dem Balkan stammen, ist die Arbeiterwohlfahrt (AWO) verantwortlich.
 Die Geflüchteten - Männer, Frauen und Kinder - teilen sich ohne jede Möglichkeit auf Privatsphäre die Turnhalle und nutzen sie als Schlaf-, Ess- und Spielraum.
