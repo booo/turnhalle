@@ -1,3 +1,5 @@
+*Hinweis: Die Unterbringung von Geflüchteten in der Turnhalle ist inzwischen beendet. Die Menschen wurden auf verschiedene andere Unterkünfte in Berlin verteilt.*
+
 200 Geflüchtete, darunter rund ca. 70 Kinder, sind seit dem 19. Dezember
 2014 in der Unisport-Turnhalle der Freien Universität in Dahlem
 untergebracht. Wir sind ein Bündnis von Menschen aus dem universitären
