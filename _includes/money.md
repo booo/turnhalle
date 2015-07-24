@@ -17,5 +17,5 @@ Im Folgenden eine Liste unserer Einnahmen und Ausgaben. Wir versuchen, die Liste
 | **Summe**                                               | **1344,14** | **757,89** |
 | *Kontostand:  +586,11 Euro*                             |             |            |
 
-Das übrige Geld kommt natürlich auch nach dem Ende der Turnhallenunterkunft Geflüchteten in Berlin zu Gute! Wir haben uns beschlossen, es folgendermaßen aufzuteilen: Jeweils 220,00 Euro gehen an die Arbeitsgruppe InterSol der Interventionistischen Linken und an den [International Women's Space]((https://iwspace.wordpress.com/)). Die restlichen 146,11 Euro verwenden wir für Materialien für Deutschkurse in einer Unterkunft in Neukölln (z.B. [so](bon5.pdf)).
+Das übrige Geld kommt natürlich auch nach dem Ende der Turnhallenunterkunft Geflüchteten in Berlin zu Gute! Wir haben uns beschlossen, es folgendermaßen aufzuteilen: Jeweils 220,00 Euro gehen an die Arbeitsgruppe InterSol der Interventionistischen Linken und an den [International Women's Space](https://iwspace.wordpress.com/). Die restlichen 146,11 Euro verwenden wir für Materialien für Deutschkurse in einer Unterkunft in Neukölln (z.B. [so](bon5.pdf)).
 
